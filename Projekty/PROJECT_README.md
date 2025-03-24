@@ -1,0 +1,1 @@
+Ludzie, tu nikogo nie ma!
